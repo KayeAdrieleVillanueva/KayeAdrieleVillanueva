@@ -32,7 +32,7 @@ I'm Kaye Adriele Villanueva, a passionate coder with a knack for database manage
 
 ## Connect with me 🤝
 
-- **LinkedIn:** [LinkedIn Profile](www.linkedin.com/in/kaye-adriele-villanuvea-166b092a4)
+- **LinkedIn:** [LinkedIn Profile](https://www.linkedin.com/in/kaye-adriele-villanuvea-166b092a4/)
 - **Email:** kayeadriele2204@gmail.com
 
 Let's connect and explore the world of technology together! 🚀
