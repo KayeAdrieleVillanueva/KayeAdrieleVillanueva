@@ -6,7 +6,7 @@ I'm Kaye Adriele Villanueva, a passionate coder with a knack for database manage
 
 - **BS Information Technology**
   - New Era University
-  - 2021-Present
+  - 2022-Present
 
 ## Certifications 🏆
 
